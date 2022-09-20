@@ -83,4 +83,4 @@ Nous vous informerons par e-mail et/ou par un avis visible sur notre Service, av
 Il vous est conseillé de consulter périodiquement cette politique de confidentialité pour tout changement. Les modifications apportées à cette politique de confidentialité entrent en vigueur lorsqu'elles sont publiées sur cette page.
 Nous contacter
 Si vous avez des questions concernant cette politique de confidentialité, veuillez nous contacter :
-Par email : 
+Par email : maxence.theme@gmail.com
